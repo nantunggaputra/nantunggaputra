@@ -1,3 +1,14 @@
+# LinkedScore
+
+<img src="https://raw.githubusercontent.com/nantunggaputra/nantunggaputra/main/assets/nantunggaputra-anime-profile.png" alt="Anime Profile" style="width: 100%; height: auto;" />
+
+---
+
+#### Anime Profile LinkedIn ini udah dibikin sama [Gue](https://linkedscore.site/anime-profile) 🤖
+LinkedScore · Apr 2025
+
+---
+
 # GitHub Roasted
 
 ## Woi, wess! Malam, semuanya! 😂
